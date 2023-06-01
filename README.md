@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @priv2te
 - 👀 I’m interested in CyberSecurity
-- 🌱 I’m currently learning Python
+- 🌱 I’m currently learning Nothing
 - 💞️ I’m looking to collaborate on Nothing right now
 - 📫 How to reach me v--@outlook.sa or my twitter @l79l
 
